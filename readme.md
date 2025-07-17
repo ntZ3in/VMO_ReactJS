@@ -1,2 +1,0 @@
-đfđsdfấd
-ádasdasd
